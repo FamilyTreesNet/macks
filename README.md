@@ -14,7 +14,7 @@ Jon Mack's DNA test found more DNA from the local area (87% Eastern Europeans) t
 
 Jon is also 6% Finland/Siberia, 4% Jewish Diaspora, and 3% Central Asia. In contrast, the average polish person is 5% Finland/Siberia, 6% Jewish Diaspora, and 3% Central Asia, plus the average Polish person has four other ancestries my uncle didn't have: 13% Western/Central European (Germanic), 7% Southern European and 5% Asia Minor (both incoming agricultural migrations), and 2% Scandinavian. So did we live deep in the hills and forests of Eastern Europe (Ukrainian and Poland), away from the wandering influxes?  
 
-When the family migrated to Sudbury Canada, they sold supplies to lumberjacks by hiking into remote areas.  Later they would build 7+ cabins around Lake Panache by hauling supplies in over the ice in the winter.
+When the family migrated to Sudbury in Ontario, Canada, they sold supplies to lumberjacks by hiking into remote areas.  Later they would build 7+ cabins around Lake Panache by hauling supplies in over the ice in the winter.
 
 
 <img src="img/viv-rob-jon.jpg">
