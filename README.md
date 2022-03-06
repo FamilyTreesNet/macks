@@ -24,4 +24,7 @@ Viv, Rob and Jon<br><br>
 Their parents, Virginia and Eugene Macks<br><br>  
 
 <img src="img/starrman_macks.jpg">
-Jon's son Jeff and his wife Jen<br><br>  
+Jon's son Jeff and his wife Jen  
+
+
+[Edit on GitHub](https://github.com/FamilyTreesNet/macks)
