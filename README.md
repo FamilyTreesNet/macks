@@ -6,6 +6,14 @@ Eugene Macks migrated from Canada to Detroit and sired Gene, Vivian, Jonathan an
 
 Rhodie married Anne. Their kids: [Dennis Macks](https://lougheedfuneralhomes.com/book-of-memories/2019988/macks-dennis/obituary.php) and Sonya (Macks) Matichuk.
 
+<img src="img/dennis-macks-rowing.jpg" style="max-height:400px;float:left">
+
+<img src="img/rob-and-dennis-macks-portage.jpg" style="max-height:400px;float:left">
+
+<div style="clear:both"></div><br>
+Rob writes. my cousin Dennis was someone I looked up to as a model outdoorsman. We did a trip together, in my brand new aluminum canoe, about 1971, starting at the cabin at Panache and portaging into the many lakes of Killarney Provincial Park to the south, before anyone knew it existed. He shattered my image of him as great outdoorsman after he built a campfire in the base of a tree and later that night we woke up to the tree burning. Luckily it was close to the lake and we jumped in and splashed the tree until the fire was out.  
+<br>
+
 Our family name was Maksymowicz before grandma changed it to Macks to deal with discrimination and pronunciation. Our cousin says the "Mak or Mac" part of our name indicates Viking origin. They were everywhere. My understanding is that the "son of" ending of the name is "vitch" in Russian, "wicz" Ukrainian, and "witz" Jewish. All pronounced like vitch.  
 SON OF A VITCH!
 &ndash; From Rob Macks, [Laughing Loon](https://laughingloon.com)  
@@ -24,7 +32,10 @@ Viv, Rob and Jon<br><br>
 Their parents, Virginia and Eugene Macks<br><br>  
 
 <img src="img/starrman_macks.jpg">
-Jon's son Jeff and his wife Jen  
+Jon's son Jeff Macks and his wife Jen.  
+<br>
 
+From Detroit, the U.S. family migrated outward to Maine, Virginia, Atlanta and Austin.  
+The Sudbury side migrated to Toronto.  
 
 [Edit on GitHub](https://github.com/FamilyTreesNet/macks)
