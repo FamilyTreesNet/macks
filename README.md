@@ -35,7 +35,7 @@ Their parents, Virginia and Eugene Macks<br><br>
 Jon's son Jeff Macks and his wife Jen.  
 <br>
 
-From Detroit, the U.S. family migrated outward to Maine, Virginia, Atlanta and Austin.  
+From Detroit, the U.S. family migrated outward to Maine, Virginia, Atlanta, San Francisco and Austin.  
 The Sudbury side migrated to Toronto.  
 
 [Edit on GitHub](https://github.com/FamilyTreesNet/macks)
