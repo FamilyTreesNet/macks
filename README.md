@@ -59,7 +59,7 @@ Dennis was our Google before Google was invented. With his vast knowledge of geo
 
 Dennis Macks passed away at Mackenzie, B.C. with his loyal friends Sally Miller and Vicki Podgorenko by his side. Born in Sudbury, on February 5th, 1944, he passed away November 26th, 2014.
 
-Beloved son of Rhodie and Anne Macks predeceased. Dearly loved brother of Sonya Matichuk (Bill predeceased). Fishing and camping buddy of nephew Tony Matichuk (predeceased) (wife Janice) and great nieces Andrea and Miranda. Special uncle to Marianne Matichuk and her husband James Chalmers, custodians of Dennis’ beloved camp at Lake Penage, Sudbury. He will be sadly missed by his family, many friends and teammates holding countless memories of the times shared by all.
+Son of Rhodie and Anne Macks predeceased. Brother of Sonya Matichuk (amd Bill predeceased). Fishing and camping buddy of nephew Tony Matichuk (predeceased) (wife Janice) and great nieces Andrea and Miranda. Special uncle to Marianne Matichuk and her husband James Chalmers, custodians of Dennis’ beloved camp at Lake Penage, Sudbury. He will be sadly missed by his family, many friends and teammates holding countless memories of the times shared by all.
 
 Cremation was done in B.C. Rest peacefully by the lake Diesel and know your memories will remain in our hearts.
 
