@@ -26,7 +26,7 @@ When the family migrated to Sudbury in Ontario, Canada, they sold supplies to lu
 
 
 <img src="img/viv-rob-jon.jpg">
-Viv, Rob and Jon<br><br>  
+Viv, Rob and Jon (Jack)<br><br>  
 
 <img src="img/virginia-eugene.jpg">
 Their parents, Virginia and Eugene Macks<br><br>  
