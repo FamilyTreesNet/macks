@@ -35,8 +35,9 @@ Their parents, Virginia and Eugene Macks<br><br>
 Jon's son Jeff Macks and his wife Jen.  
 <br>
 
-From Detroit, the U.S. family migrated outward to Maine, Virginia, Atlanta, San Francisco and Austin.  
-The Sudbury side migrated to Toronto.  
+From Detroit, the U.S. family migrated outward to Maine, Virginia, Atlanta, San Francisco and Austin.   
+Rhodie's granddaughter Marianne Matichuk served as Mayor of Sudbury from 2010 to 2014.  
+Helen's daugheter Jan and her family moved to Toronto.  A record store now resides in the Macks Store as of 2022.
 
 [Edit on GitHub](https://github.com/FamilyTreesNet/macks)
 
