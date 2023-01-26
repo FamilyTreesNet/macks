@@ -44,11 +44,11 @@ Helen's daugheter Jan and her family moved to Toronto.  A record store now resid
 
 # Dennis Macks
 
-<img src="img/dennis-macks-hockey.jpg" style="float:left; height:200px">
+<img src="img/dennis-macks-hockey.jpg" style="float:left; height:300px">
 
-<img src="img/dennis-macks.jpg" style="float:left; height:200px">
+<img src="img/dennis-macks.jpg" style="float:left; height:300px">
 
-<img src="img/dennis-macks-rowing.jpg" style="float:left; height:200px">
+<img src="img/dennis-macks-rowing.jpg" style="float:left; height:300px">
 
 
 <div style="clear:both"></div><br>
