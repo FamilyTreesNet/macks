@@ -4,7 +4,7 @@ Parents of Eugene, Paul, Rhodie and Helen.
 
 Eugene Macks migrated from Canada to Detroit and sired Gene, Vivian, Jonathan and Robert.  
 
-[Macks oral history](audio/Eugene-Macks-oral-history.mp3) from Eugene Macks, son [Rob Macks](https://www.facebook.com/rob.macks.1) and Rob's friend.
+[Macks oral history](audio/Eugene-Macks-oral-history.mp3) from Eugene Macks, son [Rob Macks](https://www.facebook.com/rob.macks.1) and Rob's college friend from Wayne State University Mark Casmer and his wife Debra who were visiting Rob and his first wife [Robin](https://www.facebook.com/robinshealinghands) in Amherst, MA in 1981 when Eugene visited from Michigan.<!-- Rob adds "Mark asked a lot of questions I might not have and father seemed to feel comfortable addressing answers to Mark."-->
 
 Rhodie Macks married Anne. Their kids: [Dennis Macks](https://lougheedfuneralhomes.com/book-of-memories/2019988/macks-dennis/obituary.php) and Sonya (Macks) Matichuk.
 
